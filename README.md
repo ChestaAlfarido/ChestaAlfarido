@@ -17,7 +17,7 @@
 
 - 📫 How to reach me: **chestasmkn1geta@gmail.com**
 
-- ⚡ Words of the day: **"Although i like solitude and freedom, I really don't like loneliness"**
+- ⚡ Today's words: **"Even though we like solitude and freedom, we actually don't like loneliness. Therefore, never go too far in solitude and freedom."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
