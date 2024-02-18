@@ -1,6 +1,6 @@
 ![MasterHead](https://1.bp.blogspot.com/-7A4WynwLsMw/XbBpCXG8fHI/AAAAAAAAMt4/uOa1bpLskYgrwGbllhSu2SDj_Mig8SXJQCLcBGAsYHQ/s1600/2000_600px.gif)
-<h1 align="center">Hi someone👋, I'm M. Chesta Adabi Alfarido</h1>
-<h3 align="center">I am a student at the Darmajaya Institute of Informatics and Business who likes studying Computer Science and Penetration Testing</h3>
+<h1 align="center">Hi someone👋, I'm M. Chesta Adabi Alfarido AKA (Chesta)</h1>
+<h3 align="center">I am a student at the Institute of Informatics and Business Darmajaya who likes studying Computer Science and Penetration Testing^^</h3>
 
 <img align="right" alt="Coding" width="400" src="https://cdn.dribbble.com/users/730703/screenshots/6581243/avento.gif">
 
@@ -13,11 +13,11 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/ChestaAlfarido/](https://github.com/ChestaAlfarido/)
 
-- 💬 Ask me about **anything**
+- 💬 Ask me about: **whatever is up to you**
 
-- 📫 How to reach me **chestasmkn1geta@gmail.com**
+- 📫 How to reach me: **chestasmkn1geta@gmail.com**
 
-- ⚡ Fun fact **"Although i like solitude and freedom, I really don't like loneliness"**
+- ⚡ Words of the day: **"Although i like solitude and freedom, I really don't like loneliness"**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
